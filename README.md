@@ -7,4 +7,5 @@ Luana
 - você pode entrar em contato comigo para:
 - conversar
 - se quiser entrar em contato comigo: 00001096566412sp@al.educacao.sp.gov.br
-https://tenor.com/neLdIrNmWCE.gif
+  
+![](https://media1.tenor.com/m/mEhkr91yX5YAAAAC/gru-moon.gif)
